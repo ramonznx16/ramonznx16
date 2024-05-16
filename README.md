@@ -8,5 +8,4 @@ Meu nome é Miguel Souza
 
 Intagram:@ramonznx995/@ramonznx.01
 Facebook:Miguel Souza
-Cel:(14)981493903
 VAI CORINTHIANS🖤🖤🖤
